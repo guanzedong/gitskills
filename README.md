@@ -1,5 +1,5 @@
 
-
+bug have solved hahahh
 
 
 
